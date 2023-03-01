@@ -2,3 +2,4 @@
 
 ## Introduction
 Hi! It's me Hidayat!!
+Hi ! It's Lusi from Institut Teknologi Sumatera
